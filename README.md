@@ -1,1 +1,14 @@
-# design-inspiration
+# design inspiration
+- https://www.land-book.com
+- https://lapa.ninja
+- https://xdguru.com
+- https://uispace.net
+- https://uigarage.net
+- https://UIbundle.com
+- https://UiStore.design
+- https://Land-book.com
+- https://FreebiesUI.com
+- https://Screenlane.com
+- https://Sketchrepo.com
+- https://Landingfolio.com
+- https://Saaslandingpage.com
